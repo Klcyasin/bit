@@ -1,0 +1,1 @@
+bos sokaklarda seni beklerim
